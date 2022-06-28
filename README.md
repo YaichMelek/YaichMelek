@@ -1,6 +1,6 @@
 # Hi there, I'm Melek 👋 
 
-## I'm a Big Data and Business Intelligent student
+## I'm a Big Data and Business Intelligent Student
 
 
 - 🌱 I’m currently learning everything 🤣
